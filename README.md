@@ -1,5 +1,6 @@
 
-#You're_all_I_see
+# You're_all_I_see
+
 I go hours, sometimes days, not seeing you, And it makes no difference to me. You don’t cross my mind that often, But when you do, I wonder. I wonder if you’re okay, and I’m reminded I haven’t seen you in a while.
 
 Some people call that love, I call it being thoughtful. You see, I can’t even grasp my mind around being in love with you I’m just trying to keep our friendship alive.
